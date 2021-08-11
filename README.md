@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LucidDuck
+- 👀 I’m interested in Anime, and video games.
+- 🌱 I’m currently learning Japanese
+- 💞️ I’m looking to collaborate on Unity
+- 📫 How to reach me on email:Mccauleybro19@gmail.com
